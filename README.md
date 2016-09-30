@@ -29,7 +29,6 @@ ik hoop dat je dit leuk vind
 vandaag hebben we allemaal een website gemaakt die er nog geen hadden,
 bijvoorbeeld ik.
 
-hier nog een leuk plaatje die kan bewegen
-
 ![emoji](emoji.jpg)
+
 

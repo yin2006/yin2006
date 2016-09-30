@@ -21,4 +21,8 @@ http://ducksarethebest.com/
 
 ik hoop dat je dit leuk vind 
 
+ 30-9-2016
+vandaag hebben we allemaal een websait gemaakt die er nog geen hadden,
+bijvoorbeeld ik.
+
 

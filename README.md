@@ -7,8 +7,6 @@ hoi
 
 hier wat leuke websaits
 
-www.staggeringbeuauty.com
-
 www.catbount.com
 
 www.borusancolection.com

@@ -31,5 +31,5 @@ bijvoorbeeld ik.
 
 hier nog een leuk plaatje die kan bewegen
 
-![emoji](emoji.jpeg)
+![emoji](emoji.jpg)
 

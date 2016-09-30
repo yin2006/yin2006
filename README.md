@@ -11,7 +11,7 @@ www.StaggeringBeauty.com
 
 http://cat-bounce.com/
 
-www.borusancolection.com
+http://www.sadforjapan.com/
 
 www.corgiorgy.com
 

@@ -19,6 +19,10 @@ www.theuselessweb.com
 
 http://ducksarethebest.com/
 
+en hier een super erge websait
+
+http://thatsthefinger.com/
+
 ik hoop dat je dit leuk vind 
 
  30-9-2016

@@ -23,9 +23,11 @@ en hier een super erge websait
 
 http://thatsthefinger.com/
 
-en nog een leuk populair spelletje 
+en nog een paar leuk populair spelletje 
 
 http://slither.io/
+
+http://agar.io/
 
 ik hoop dat je dit leuk vind 
 
@@ -34,5 +36,7 @@ vandaag hebben we allemaal een website gemaakt die er nog geen hadden,
 bijvoorbeeld ik.
 
 ![emoji](emoji.jpg)
+
+
 
 

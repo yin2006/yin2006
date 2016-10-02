@@ -5,7 +5,7 @@ hoi
 
 ![appel](appel.jpg)
 
-hier wat leuke websaits
+hier wat leuke websites
 
 www.StaggeringBeauty.com
 

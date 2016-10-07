@@ -39,6 +39,8 @@ bijvoorbeeld ik.
 
 ![emoji](emoji.jpg)
 
+![regenboog](regenboog.jpg)
+
 
 
 

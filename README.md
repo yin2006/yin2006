@@ -19,6 +19,8 @@ www.theuselessweb.com
 
 http://ducksarethebest.com/
 
+http://omfgdogs.com/
+
 en hier een super erge websait
 
 http://thatsthefinger.com/

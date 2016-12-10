@@ -43,6 +43,7 @@ bijvoorbeeld ik.
 
 ![regenboog] (regenboog.jpg)
 
+![appel](appel.jpg)
 
 
 

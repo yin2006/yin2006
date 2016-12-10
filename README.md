@@ -43,7 +43,14 @@ bijvoorbeeld ik.
 
 ![regenboog] (regenboog.jpg)
 
-![appel](appel.jpg)
+
+
+10-12-2016 
+ik ga op 10 januari mijn spreekbeurt over arduino houden!
+zin in!
+yin
+
+
 
 
 

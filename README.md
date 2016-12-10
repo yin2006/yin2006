@@ -39,9 +39,9 @@ ik hoop dat je dit leuk vind
 vandaag hebben we allemaal een website gemaakt die er nog geen hadden,
 bijvoorbeeld ik.
 
-![emoji](emoji.jpg)
+![emoji] (emoji.jpg)
 
-![regenboog](regenboog.jpg)
+![regenboog] (regenboog.jpg)
 
 
 
